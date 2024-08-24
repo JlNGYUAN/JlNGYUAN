@@ -4,7 +4,7 @@
 ˢᵒ ᵐᵃʸᵇᵉ ⁱᶠ ʷᵉ ⁿᵉᵛᵉʳ ʷᵃᵏᵉ ᵘᵖ ʷᵉ ᶜᵃⁿ ˢᵉᵉ ᵗʰᵉ ˢᵏʸ
 
 Go check out my [spotify playlist.](https://open.spotify.com/playlist/3BEHnADd8Wkyx3vRRCU8cA)
-![image](https://64.media.tumblr.com/48a612335232874fe2e07f0641d26601/5608c1ce863f9968-20/s400x600/34584a7a729ad1436d0d8368c7ad2093532dfe9d.gifv)![image](https://64.media.tumblr.com/48a612335232874fe2e07f0641d26601/5608c1ce863f9968-20/s400x600/34584a7a729ad1436d0d8368c7ad2093532dfe9d.gifv)
+![image](https://64.media.tumblr.com/48a612335232874fe2e07f0641d26601/5608c1ce863f9968-20/s400x600/34584a7a729ad1436d0d8368c7ad2093532dfe9d.gifv)
 ![image](https://blinkies.cafe/b/blinkiesCafe-BH.gif)![image](https://blinkies.cafe/b/blinkiesCafe-e7.gif)![image](https://blinkies.cafe/b/blinkiesCafe-ai.gif)![image](https://blinkies.cafe/b/blinkiesCafe-uZ.gif)
 
 Jhyren ⪩⪨ He/Him
