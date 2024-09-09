@@ -6,6 +6,7 @@
 
 Go check out my [spotify playlist.](https://open.spotify.com/playlist/3BEHnADd8Wkyx3vRRCU8cA)
 
+![.](https://i.postimg.cc/WbscQSz7/1e8bf1433e6ca12af5efe4f5f1ea55d3.gif)
 
 Jhyren ⪩⪨ He/Him
 
